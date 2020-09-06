@@ -1,5 +1,5 @@
 **客服专用邮箱**
-junjielang@foxmailcom
+junjielang@foxmail.com
 ****
-**举报专用邮箱**
+**客服专用邮箱**
 junjielang@foxmail.com
