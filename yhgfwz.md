@@ -1,0 +1,1 @@
+[打开页面](http://www.6tuzi.com/)
